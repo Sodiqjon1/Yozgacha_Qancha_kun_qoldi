@@ -1,0 +1,1 @@
+# Yozgacha_Qancha_kun_qoldi
